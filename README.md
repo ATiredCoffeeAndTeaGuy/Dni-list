@@ -14,5 +14,6 @@
 11. Monster kid and their sys
 12. Hell bound sys
 13. Frawley
+14. Sol
 
 (Srsly, yall need to dni bcs some of yall do too much or bcs what yall have done to me./neg)
